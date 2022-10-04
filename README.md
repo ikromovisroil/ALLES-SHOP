@@ -1,2 +1,0 @@
-# ALLES-SHOP
-yosh dasturchi
